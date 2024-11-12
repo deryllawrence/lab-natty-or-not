@@ -4,7 +4,11 @@
 
 > Woooow! Look at this 👀
 
-Olá pessoal, Venilton da DIO aqui! Inspirado na hype _"Natty or Not"_ do fisiculturismo, este Lab da DIO te convida a conhecer o mundo das IAs Generativas, explorando o potencial dessas tendências tecnológicas incríveis!
+Olá pessoal, Deryl aqui! Inspirado na hype _"Natty or Not"_ do fisiculturismo, este Lab da DIO te convida a conhecer o mundo das IAs Generativas, explorando o potencial dessas tendências tecnológicas incríveis!
+
+Tem sido incrível até aqui, todo o conteúdo ensinado e as possibilidades de aplicação prática nas tarefas do dia a dia.
+
+Seguimos para mais...
 
 ## 🎯 Bora Pro Desafio!? Você Já Venceu 💪🤓
 
